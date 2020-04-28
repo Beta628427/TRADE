@@ -1,0 +1,2 @@
+# TRADE
+CODIGO_____BOT_____TRADING______DANIEL_S_BETANCOURT_C______
